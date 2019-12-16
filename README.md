@@ -1,0 +1,2 @@
+# MLZSAmritsar
+School
